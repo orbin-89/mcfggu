@@ -1,0 +1,2 @@
+# mcfggu
+Daily digest notes
